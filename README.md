@@ -1,0 +1,1 @@
+# Strategijski-Menad-ment-MediaLab
